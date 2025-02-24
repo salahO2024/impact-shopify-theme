@@ -1,0 +1,1 @@
+# impact-shopify-theme
